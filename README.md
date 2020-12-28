@@ -1,4 +1,4 @@
-### How can I get access to full source or a precompiled copy?
+### How can I get access to a full source or precompiled copy?
  - Discord: CyberMist2#4911
  - GMail: CyberMist2@gmail.com
 
