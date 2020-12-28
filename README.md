@@ -6,4 +6,4 @@
  - https://www.ac-web.org/forums/showthread.php?238729-WTS-Oracle-Launcher-(supports-multiple-expansions)
  
 ### Relative topics:
- - https://www.ac-web.org/forums/showthread.php?238729-WTS-Oracle-Launcher-(supports-multiple-expansions)
+ - https://www.ac-web.org/forums/showthread.php?237705-WTS-Launchers-services
