@@ -8,5 +8,5 @@
 ### Relative topics:
  - https://www.ac-web.org/forums/showthread.php?237705-WTS-Launchers-services
 
-### Galery:
+### Gallery:
  - https://imgur.com/a/w4EztQU
